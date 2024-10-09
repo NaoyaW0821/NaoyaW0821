@@ -1,0 +1,2 @@
+- 👋 Hi, I’m NaoyaW. nice too meet you!
+- 🗾 I'm from 🇯🇵
